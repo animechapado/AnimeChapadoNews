@@ -1,3 +1,3 @@
 # AnimeChapadoNews
 
-FODA-SE O SISTEMA
+FODA-SE O SISTEMA destroy destroy acab 1312
